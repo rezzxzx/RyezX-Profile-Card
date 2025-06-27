@@ -1,1 +1,0 @@
-Rename sendiri aja ya bang
